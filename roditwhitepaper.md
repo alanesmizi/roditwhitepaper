@@ -5,30 +5,6 @@ Rich Online Digital Tokens Whitepaper
 Author: Vicente Aceituno Canal / Cableguard, June 2024
 ------------------------------------------------------
 
-[![Vicente Aceituno Canal](Rich%20Online%20Digital%20Tokens%20Whitepaper%20by%20Vicente%20Aceituno%20Canal%20Jun,%202024%20Cableguard%20VPN,%20the%20RODiT%20revolution_files/1%2520Jsem_jwNTATwcQhMSJgsyw_002.jpg)
-
-](https://vaceituno.medium.com/?source=post_page-----94a8f1b547b4--------------------------------)[![Cableguard VPN, the RODiT revolution](Rich%20Online%20Digital%20Tokens%20Whitepaper%20by%20Vicente%20Aceituno%20Canal%20Jun,%202024%20Cableguard%20VPN,%20the%20RODiT%20revolution_files/1%20-yGnuVm2kxmajBAHlK3eMw.png)
-
-](https://cableguard.org/?source=post_page-----94a8f1b547b4--------------------------------)
-
-[Vicente Aceituno Canal](https://vaceituno.medium.com/?source=post_page-----94a8f1b547b4--------------------------------)
-
-Published in[
-
-Cableguard VPN, the RODiT revolution
-
-](https://cableguard.org/?source=post_page-----94a8f1b547b4--------------------------------)·21 min read·4 days ago
-
-50
-
-Listen
-
-Share
-
-More
-
-![](Rich%20Online%20Digital%20Tokens%20Whitepaper%20by%20Vicente%20Aceituno%20Canal%20Jun,%202024%20Cableguard%20VPN,%20the%20RODiT%20revolution_files/1%25208vZo0BmlGJDHt5u8v4mbJQ_005.png)Cableguard logo
-
 Executive Summary
 =================
 
